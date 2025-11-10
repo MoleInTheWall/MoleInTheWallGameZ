@@ -1,4 +1,4 @@
-- 👋 Hi, We are @MoleInTheWall
+- 👋 Hi, We are MoleInTheWall
 - 😄 Pronouns: Company
 - ⚡ Fun fact: formed in 2022
 
